@@ -1,2 +1,2 @@
 # rsschool-cv
-updates
+https://Yan-V-Y.github.io/rsschool-cv/cv
